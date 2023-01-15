@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Terrybuchi
-- 👀 I’m interested in opinion management tech, health tech, biotech, and ecommerce
+- 👀 I’m interested in opinion management tech, health tech, biotech, Ed-tech, and eCommerce
 - 🌱 I’m currently learning product design, product management, managerial accounting, and how to be a better human
-- 💞️ I’m looking to collaborate on creatives, critical thinkers, good team player, great communicator
+- 💞️ I’m looking to collaborate with creatives, critical thinkers, good team players, and great communicators
 - 📫 How to reach me terryisife010@gmail.com
 
 <!---
